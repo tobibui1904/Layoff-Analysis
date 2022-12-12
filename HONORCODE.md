@@ -1,5 +1,5 @@
-Please provide your Honor Code Attestation below.
+Please provide your Honor Code Attestation below： I have adhered to the Honor Code
 
-Student #1:
+Student #1: Tobi 
 
-Student #2 (if any):
+Student #2 (if any): None
